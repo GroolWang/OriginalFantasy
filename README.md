@@ -1,2 +1,1 @@
-# OriginalFantasy
-Independent Game Project with Interests
+three happy fat otakus start game making!
